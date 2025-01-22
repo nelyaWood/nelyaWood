@@ -8,4 +8,4 @@
 <h4 align="center"> ۶ৎ PLAYLIST : WILL WOOD , welcome camp here & there , MIRACLE MUSICAL , TALLY HALL , mercuro , babymetall!! , msi
 <img align="right" width="70" height="70" src="https://static.wikitide.net/projectsekaiwiki/f/f8/Ichika_Casual_chibi.png">
 <h4 align="center"> ✄ KINN^^  SPARKLE,SUNDAY( HSR ); ENA,NENE,ICHIKA( PJSK ) ᶻz . . 
-<img align="left" width="70" height="70" src="https://i.pinimg.com/736x/18/0e/b9/180eb983454a44084290e0207f8d58a4.jpg">
+<img align="left" width="70" height="70" src="https://media.tenor.com/FDUTaeN3sfIAAAAj/ichika-hoshino.gif">
