@@ -1,4 +1,5 @@
 <p align="center">
+      <img width="300" height="300" src="https://www.sigstick.com/pack/jyLBLdtlCpKgvj2s2LYa">
 </p>
 <h4 align="center"> ALWAYS AFK , c + h \ w2i 𖹭 . . .
 <h4 align="center">  𝗜𝗦𝗧𝗣 𝟲𝗪𝗫⇄ 
