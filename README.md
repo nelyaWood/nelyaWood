@@ -1,7 +1,5 @@
 
 <p align="center">
-      <img width="300" height="300" src="<p align="https://pin.it/5OsDaTofC">
-      </p>
 <h4 align="center"> always AFK! c+h , w2i 
 <h4 align="center"> DNI: tolerant , galladay. 
 <h4 align="center"> MY FANDOMS^ HSR, 8:11 , cookie run kigdom , sekai , paper teeth , madeleine's phantasms. 
