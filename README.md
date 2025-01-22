@@ -1,7 +1,7 @@
 <p align="center">
       <img width="300" height="300" src="https://imgcdn.sigstick.com/jyLBLdtlCpKgvj2s2LYa/cover-1.thumb256.png">
 </p>
-<h4 align="center"> 𝗔𝗟𝗪𝗔𝗬𝗦 𝗔𝗙𝗞 , 𝘤 + 𝘩 𖹭 . . .♫ 
+<h4 align="center"> ALWAYS AFK , C + H 𖹭 . . .♫ 
 <h4 align="center">  𝗜𝗦𝗧𝗣 𝟲𝗪𝗫⇄ 
 <h4 align="center"> ╰ 𝒟𝘯𝘪 . . tolerant , galladay , RUI KAMISHIRO , lemon demon ೀ 𐔌
 <h4 align="center"> ☼ ℳ𝙮 𝙛𝙖𝙣𝙙𝙤𝙢𝙨!! HSR , TALLY HALL , 8:11 ,  cookie run kingdom, my little pony ,  paper teeth , madeleine's phantasms , vocaloids , pjsekai . ᯓᡣ𐭩
