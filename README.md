@@ -6,3 +6,4 @@
 <h4 align="center"> dni . . tolerant , galladay , RUI KAMISHIRO , lemon demon ೀ 𐔌
 <h4 align="center"> MY FANDOMS!! HSR , TALLY HALL , 8:11 ,  cookie run kingdom, my little pony ,  paper teeth , madeleine's phantasms , vocaloids , pjsekai .
 <h4 align="center"> ۶ৎ PLAYLIST : WILL WOOD , welcome camp here & there , MIRACLE MUSICAL , TALLY HALL , mercuro , babymetall!! , msi.
+<img align="right" width="70" height="70" src="https://sticker.nyc3.cdn.digitaloceanspaces.com/20230124_128/file_10561631_128x128.webp">
