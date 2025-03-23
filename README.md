@@ -1,6 +1,6 @@
 <p align="center">
       <img width="700" height="200" src="https://i.pinimg.com/736x/f5/f3/a8/f5f3a8d2fd36f0f1da93be7d2fbdf9b9.jpg">
- <img width="500" height="70" src="https://i.pinimg.com/736x/f5/f3/a8/f5f3a8d2fd36f0f1da93be7d2fbdf9b9.jpg">
+ <img width="500" height="70" src="https://i.pinimg.com/736x/8c/ea/4c/8cea4c3b21970b3fb8954f3c7a7fc26a.jpg">
 </p>
 <h4 align="center"> ALWAYS AFK , C + H 𖹭 . . .♫ 
 <h4 align="center">  𝗜𝗦𝗧𝗣 𝟲𝗪𝗫⇄ 
