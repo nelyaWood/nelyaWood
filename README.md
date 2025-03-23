@@ -1,5 +1,5 @@
 <p align="center">
-      <img width="200" height="100" src="https://i.pinimg.com/736x/f5/f3/a8/f5f3a8d2fd36f0f1da93be7d2fbdf9b9.jpg">
+      <img width="400" height="100" src="https://i.pinimg.com/736x/f5/f3/a8/f5f3a8d2fd36f0f1da93be7d2fbdf9b9.jpg">
 </p>
 <h4 align="center"> ALWAYS AFK , C + H 𖹭 . . .♫ 
 <h4 align="center">  𝗜𝗦𝗧𝗣 𝟲𝗪𝗫⇄ 
