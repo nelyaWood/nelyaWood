@@ -3,3 +3,5 @@
 </p>
 <h4 align="center">  𝟺:𝟺𝟸  ♬ → 𝓎ℴ𝓊’𝓁𝓁  𝙣𝙚𝙫3𝙧 𝙩A𝙠𝙚 𝙢3 𝙮𝙤𝙪 𝘣𝘦𝘵𝘵𝘦𝘳 𝘱𝘳𝘢𝘺 𝘵𝘩𝘢𝘵 𝙄 𝙙1e! 
 <h4 align="center">  𝒴0𝘶'𝘭𝘭 𝘯𝘦𝘷𝘦𝘳 𝘛𝘈𝘒𝘌 𝙈3 𝘼-𝘼𝙇1𝙑3 ! ✧﹏ 
+<h4 align="center"> 
+<img align="right" width="70" height="70" src="https://img1.picmix.com/output/stamp/normal/6/1/9/6/2636916_7ab58.png"
